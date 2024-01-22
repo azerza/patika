@@ -1,1 +1,1 @@
-patika html
+patika courses
